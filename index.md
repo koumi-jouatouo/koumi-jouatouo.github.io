@@ -1,17 +1,17 @@
-# Bienvenue dans la page de MOUANSIE YAYE
+# Bienvenue dans la page de KOUMI JOUATOUO Emmanuel
 
 ## Introduction
 
-Je me nomme MOUANSIE YAYE, née le 01 Novembre 1994 a Massangam de nationnalité camerounaise et titulaire d’une Licence en soins infirmiers de la promotion 2019-2020 à l’Institut Supérieur de Technologie Appliquée et de Gestion et actuellement dans le domaine du travail.
+Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nationnalité camerounaise et titulaire d’un Master en Santé Publique option Santé Communautaire de la promotion 2016-2018 à l’Ecole des Sciences de la Santé de l'Université Catholique d'Afrique Centrale ou j'ai également obtenue une Licence Spéciale en Sciences Infirmières, je posséde aussi un Diplôme d'Etat d'Infirmier (IDE) issue de la formation a la Fondation MONGA de Mbouda Cameroun actuellement dans le domaine du travail.
 
 ## ETAT CIVIL
 
-* **Nom et prénom** : MOUANSIE YAYE 
-* **Date et lieu de naissance** : 01 Novembre 1994 à Massangam 
+* **Nom et prénom** : KOUMI JOUATOUO Emmanuel 
+* **Date et lieu de naissance** : 08 Août 1990 a Banka-Bafang 
 * **Situation matrimoniale** : Célibataire 
 * **Nationalité** : Camerounaise 
-* **Téléphone** : 698 53 52 04 
-* **E-mail** : yayemouansie@gmail.com
+* **Téléphone** : (+237) 678 90 09 16 / 696 59 61 20 
+* **E-mail** : koumiemmanuel@yahoo.fr
 
 ## DOMAINES DE COMPETENCES
 * Soins Infirmiers ; 
@@ -23,13 +23,14 @@ Je me nomme MOUANSIE YAYE, née le 01 Novembre 1994 a Massangam de nationnalité
 * Circoncision. 
 
 ## CURSUS ACADEMIQUE
-* **2011-2012** : Baccalauréat A4 allemand obtenu au (Lycée Bilingue de Kouoptamo)
-* **2010-2011** : Probatoire A4 allemand obtenu au (Lycée Bilingue de Kouoptamo) 
-* **2008-2009** : BEPC au (Lycée Bilingue de Kouoptamo)
+* **2008-2009** : Baccalauréat D obtenu au (Lycée Classique de Bafang)
+* **2007-2008** : Probatoire D obtenu au (Lycée Classique de Bafang) 
+* **2005-2006** : BEPC au (Lycée Classique de Bafang)
 
 ## Formation PROFESIONNELLE
-* **2019-2020** : Licence en soins infirmiers obtenu à ISTAG (Institut Supérieur de Technologie Appliquée et de gestion)
-*  **2018-2019** : Diplôme supérieur d’enseignement professionnel.
+* **2016-2018** : Master en Santé Publique option Santé Communautaire obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
+*  **2015-2016** : Licence Spéciale en Sciences Infirmières obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
+*  **2015-2016** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
 
 ## Expérience Profesionnelle
 *  **2021 (6 mois)** : Personnel contractuel CHDSMP (Centre Hospitalier Dominicain Saint Martin de Porres) de Yaoundé
