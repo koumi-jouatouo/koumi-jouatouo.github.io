@@ -2,7 +2,7 @@
 
 ## Introduction
 
-Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nationnalité camerounaise et titulaire d’un Master en Santé Publique option Santé Communautaire de la promotion 2016-2018 à l’Ecole des Sciences de la Santé de l'Université Catholique d'Afrique Centrale ou j'ai également obtenue une Licence Spéciale en Sciences Infirmières, je posséde aussi un Diplôme d'Etat d'Infirmier (IDE) issue de la formation a la Fondation MONGA de Mbouda Cameroun actuellement dans le domaine du travail.
+Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nationnalité camerounaise et titulaire d’un Master en Santé Publique option Santé Communautaire de la promotion 2016-2018 à l’Ecole des Sciences de la Santé de l'Université Catholique d'Afrique Centrale ou j'ai également obtenue une Licence Spéciale en Sciences Infirmières, je posséde aussi un Diplôme d'Etat d'Infirmier (IDE) issue de la formation a la Fondation MONGA de Mbouda actuellement dans le domaine du travail.
 
 ## ETAT CIVIL
 
@@ -13,15 +13,6 @@ Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nat
 * **Téléphone** : (+237) 678 90 09 16 / 696 59 61 20 
 * **E-mail** : koumiemmanuel@yahoo.fr
 
-## DOMAINES DE COMPETENCES
-* Soins Infirmiers ; 
-* Prise des paramètres ;
-* Assistant chirurgien ;
-* Administration des soins ;
-* Surveillance des patients ;
-* Propreté des locaux ;
-* Circoncision. 
-
 ## CURSUS ACADEMIQUE
 * **2008-2009** : Baccalauréat D obtenu au (Lycée Classique de Bafang)
 * **2007-2008** : Probatoire D obtenu au (Lycée Classique de Bafang) 
@@ -31,6 +22,35 @@ Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nat
 * **2016-2018** : Master en Santé Publique option Santé Communautaire obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Licence Spéciale en Sciences Infirmières obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
+
+## Certificats et Attestations Recents
+* **2018** : Attestation en assistance vitale cardiovasculaire et traumatique avancée obtenu à l'Hôpital Bethesda / CURY.
+* **18 au 20 Avril 2018** : Attestation de participation au 1er congrès de Médecine Communautaire organisé à Yaoundé à l’occasion des Journées Nationales de Promotion de la Santé (JNPS), sur le thème « le paludisme de l’enfant dans tous ses états » obtenu à l'Ecole des Sciences de la Santé de l’Université Catholique d’Afrique Centrale.
+* **Juin 2018** : Attestation de participation au sommet sur la santé ténue à Kribi obtenu à la CASEC, THE PATCHA FOUNDATION.
+* **Juin 2017** : Attestation de Participation à THE CASEC MEDICAL MISSION TO CAMEROUN à Maroua obtenu à la CASEC, THE PATCHA FOUNDATION.
+* **09 au 13 Octobre 2017** : Attestation de participation au colloque International sur « les institutions culturelles et scientifiques africaines dans les enjeux de l’émergence et de la renaissance »  obtenu à la CERDOTOLA.
+* **Juin 2016** : Attestation de participation à la Journée Internationale de l’Infirmière obtenu à l'ESS/UCAC.
+* **Décembre 2015 à Août 2016** : Attestation de fin de stage de perfectionnement dans le Centre Médical de Biyem-Assi Lycée, obtenu au Centre Médical de Biyem-Assi Lycée.
+* **25 Février au 25 Avril 2015** : Attestation de réussite à l’examen de fin de formation en premiers secours obtenu à la Croix-Rouge Camerounaise, Comité départemental des Bamboutos.
+* **2014** : Attestation de fin de stage à l’hôpital Central de Yaoundé dans le service de chirurgie Infantile obtenu à l'Hôpital Central de Yaoundé, Cameroun.
+* **2013** : Diplôme de participation aux 5e journées scientifiques nationales de l’association Camerounaise des Sages-Femmes, Infirmiers Accoucheurs et Spécialisés en Santé de la Reproduction obtenu à l'ASSOCASFIASAR.
+
+## DOMAINES DE COMPETENCES
+* Infirmier/ Expert en santé publique/ Expert en Assistance Vitale et Traumatique Avancée/ certifié en Equipes d’Intervention et d’Investigation Rapides;
+* Soins Infirmiers ; 
+* Prise des paramètres ;
+* Assistant chirurgien ;
+* Premiers secours ;
+*	Aptitude à l’exploitation de l’outil Internet ;
+*	Dynamique et flexible ;
+*	Grande capacité de créativité ;
+*	Capacité à travailler dans des conditions de pression ;
+*	Bonne disposition à travailler en équipe pluridisciplinaire et dans un environnement
+Multiculturel ;
+*	Planification des projets ;
+*	Mise en œuvre ;
+*	Suivi et évaluation.
+
 
 ## Expérience Profesionnelle
 *  **2021 (6 mois)** : Personnel contractuel CHDSMP (Centre Hospitalier Dominicain Saint Martin de Porres) de Yaoundé
