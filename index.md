@@ -4,7 +4,6 @@ ______________________________________________________________
 ## Introduction
 ______________________________________________________________
 Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nationnalité camerounaise et titulaire d’un Master en Santé Publique option Santé Communautaire de la promotion 2016-2018 à l’Ecole des Sciences de la Santé de l'Université Catholique d'Afrique Centrale ou j'ai également obtenue une Licence Spéciale en Sciences Infirmières, je posséde aussi un Diplôme d'Etat d'Infirmier (IDE) issue de la formation a la Fondation MONGA de Mbouda actuellement dans le domaine du travail.
-______________________________________________________________
 
 ## ETAT CIVIL
 ______________________________________________________________
@@ -14,21 +13,18 @@ ______________________________________________________________
 * **Nationalité** : Camerounaise 
 * **Téléphone** : (+237) 678 90 09 16 / 696 59 61 20 
 * **E-mail** : koumiemmanuel@yahoo.fr
-______________________________________________________________
 
 ## CURSUS ACADEMIQUE
 ______________________________________________________________
 * **2008-2009** : Baccalauréat D obtenu au (Lycée Classique de Bafang)
 * **2007-2008** : Probatoire D obtenu au (Lycée Classique de Bafang) 
 * **2005-2006** : BEPC au (Lycée Classique de Bafang)
-______________________________________________________________
 
 ## Formation PROFESIONNELLE
 ______________________________________________________________
 * **2016-2018** : Master en Santé Publique option Santé Communautaire obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Licence Spéciale en Sciences Infirmières obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
-______________________________________________________________
 
 ## Certificats et Attestations Recents
 ______________________________________________________________
@@ -42,7 +38,6 @@ ______________________________________________________________
 * **25 Février au 25 Avril 2015** : Attestation de réussite à l’examen de fin de formation en premiers secours obtenu à la Croix-Rouge Camerounaise, Comité départemental des Bamboutos.
 * **2014** : Attestation de fin de stage à l’hôpital Central de Yaoundé dans le service de chirurgie Infantile obtenu à l'Hôpital Central de Yaoundé, Cameroun.
 * **2013** : Diplôme de participation aux 5e journées scientifiques nationales de l’association Camerounaise des Sages-Femmes, Infirmiers Accoucheurs et Spécialisés en Santé de la Reproduction obtenu à l'ASSOCASFIASAR.
-______________________________________________________________
 
 ## DOMAINES DE COMPETENCES
 ______________________________________________________________
@@ -60,7 +55,6 @@ Multiculturel ;
 *	Planification des projets ;
 *	Mise en œuvre ;
 *	Suivi et évaluation.
-______________________________________________________________
 
 ## Expérience Profesionnelle
 ______________________________________________________________
@@ -115,20 +109,17 @@ Sous la supervision du Surveillant Général :
 **D’Octobre 2016 à Janvier 2018**
 *	Stagiaire au Ministère de la santé, Direction de la santé familiale, Sous-direction de la PTME ;
 *	Participation à de nombreux ateliers (TWG) organisés par le Minsanté et les ONG partenaires sur le dépistage, l’enrôlement, le linkage, les points focaux de prise en charge du VIH, la prise en charge pédiatrique du VIH, l’extension des UPEC, les différents protocoles de TARV, la gestion des perdus de vue, le tracking et c.
-______________________________________________________________
 
 ## CONNAISSANCES LINGUISTIQUES 
 ______________________________________________________________
 *	Français : Lu, écrit, parlé (niveau excellent)
 *	Anglais : Lu, écrit, parlé (niveau intermédiaire)
 *	Féfé (langue locale du département du Haut-Nkam) : Lu, écrit, parlé (niveau rudimentaire)
-______________________________________________________________
 
 ## CONNAISSANCES INFORMATIQUES 
 ______________________________________________________________
 *	Word, Excel, Power Point : Bon
 *	CSPRO, SPSS, Epiinfo, Atlas ti: Moyen
-______________________________________________________________
 
 ## DIVERS
 ______________________________________________________________
@@ -141,7 +132,6 @@ Bénévole de l’ONG PATCHA Foundation…
 *	Publications :   
    *- Perceptions de l’ictère néonatal par les usagers des services de néonatologie des hôpitaux du district de santé de la Cité-verte, Mémoire de Master 2 en Santé publique option Santé Communautaire à L’Université Catholique d’Afrique Centrale de Yaoundé, Janvier 2019.*                                                 
    *- Facteurs favorisant la recrudescence du paludisme grave chez les enfants de 0 à 5 ans du quartier Pouango à Bafang , Mémoire de fin d’étude d’Infirmier Diplômé d’Etat à la fondation MONGA de Mbouda, Mai 2015.*
-______________________________________________________________
 
 ## REFERENCES
 ______________________________________________________________
