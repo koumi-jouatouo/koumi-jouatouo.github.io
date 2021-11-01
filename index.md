@@ -1,11 +1,12 @@
 # Bienvenue dans la page de KOUMI JOUATOUO Emmanuel
+______________________________________________________________
 
 ## Introduction
-
+______________________________________________________________
 Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nationnalité camerounaise et titulaire d’un Master en Santé Publique option Santé Communautaire de la promotion 2016-2018 à l’Ecole des Sciences de la Santé de l'Université Catholique d'Afrique Centrale ou j'ai également obtenue une Licence Spéciale en Sciences Infirmières, je posséde aussi un Diplôme d'Etat d'Infirmier (IDE) issue de la formation a la Fondation MONGA de Mbouda actuellement dans le domaine du travail.
 
 ## ETAT CIVIL
-
+______________________________________________________________
 * **Nom et prénom** : KOUMI JOUATOUO Emmanuel 
 * **Date et lieu de naissance** : 08 Août 1990 a Banka-Bafang 
 * **Situation matrimoniale** : Célibataire 
@@ -14,16 +15,19 @@ Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nat
 * **E-mail** : koumiemmanuel@yahoo.fr
 
 ## CURSUS ACADEMIQUE
+______________________________________________________________
 * **2008-2009** : Baccalauréat D obtenu au (Lycée Classique de Bafang)
 * **2007-2008** : Probatoire D obtenu au (Lycée Classique de Bafang) 
 * **2005-2006** : BEPC au (Lycée Classique de Bafang)
 
 ## Formation PROFESIONNELLE
+______________________________________________________________
 * **2016-2018** : Master en Santé Publique option Santé Communautaire obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Licence Spéciale en Sciences Infirmières obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
 
 ## Certificats et Attestations Recents
+______________________________________________________________
 * **2018** : Attestation en assistance vitale cardiovasculaire et traumatique avancée obtenu à l'Hôpital Bethesda / CURY.
 * **18 au 20 Avril 2018** : Attestation de participation au 1er congrès de Médecine Communautaire organisé à Yaoundé à l’occasion des Journées Nationales de Promotion de la Santé (JNPS), sur le thème « le paludisme de l’enfant dans tous ses états » obtenu à l'Ecole des Sciences de la Santé de l’Université Catholique d’Afrique Centrale.
 * **Juin 2018** : Attestation de participation au sommet sur la santé ténue à Kribi obtenu à la CASEC, THE PATCHA FOUNDATION.
@@ -36,6 +40,7 @@ Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nat
 * **2013** : Diplôme de participation aux 5e journées scientifiques nationales de l’association Camerounaise des Sages-Femmes, Infirmiers Accoucheurs et Spécialisés en Santé de la Reproduction obtenu à l'ASSOCASFIASAR.
 
 ## DOMAINES DE COMPETENCES
+______________________________________________________________
 * Infirmier/ Expert en santé publique/ Expert en Assistance Vitale et Traumatique Avancée/ certifié en Equipes d’Intervention et d’Investigation Rapides;
 * Soins Infirmiers ; 
 * Prise des paramètres ;
@@ -53,6 +58,7 @@ Multiculturel ;
 
 
 ## Expérience Profesionnelle
+______________________________________________________________
 **De Mai 2017 à nos jours** : 
 
 Organisation : **hôpital Bethesda de Yaoundé**
@@ -107,15 +113,18 @@ Sous la supervision du Surveillant Général :
 
 
 ## CONNAISSANCES LINGUISTIQUES 
+______________________________________________________________
 *	Français : Lu, écrit, parlé (niveau excellent)
 *	Anglais : Lu, écrit, parlé (niveau intermédiaire)
 *	Féfé (langue locale du département du Haut-Nkam) : Lu, écrit, parlé (niveau rudimentaire)
 
 ## CONNAISSANCES INFORMATIQUES 
+______________________________________________________________
 *	Word, Excel, Power Point : Bon
 *	CSPRO, SPSS, Epiinfo, Atlas ti: Moyen
 
 ## DIVERS
+______________________________________________________________
 *	Bonne connaissance géographique du Cameroun 	.
 *	Vie associative : sympathisant de la SAADIF (Structure d’Appui et d’Assistance au Développement des Initiatives Féminines); 
 Membre du Collectif Anthropologie Santé-Publique ; 
@@ -127,7 +136,7 @@ Bénévole de l’ONG PATCHA Foundation…
    *- Facteurs favorisant la recrudescence du paludisme grave chez les enfants de 0 à 5 ans du quartier Pouango à Bafang , Mémoire de fin d’étude d’Infirmier Diplômé d’Etat à la fondation MONGA de Mbouda, Mai 2015.*
 
 ## REFERENCES
-
+______________________________________________________________
 *	**OLOUME BEYEME Valentine, adolescent and HIV/AIDS Specialist à UNICEF ; Tel : +237 699 91 31 22 / 673 16 87 61 ; Email : vobeyeme@unicef.org**
 *	**ANGUMUA Carrine, HIV PREVENTION SPECIALIST, CARE International au Cameroun. TEL : +237 675 098 960. Email : carynangu@yahoo.com**
 *	**Dr DIPANDA Théodore, médecin généraliste, Inspecteur de Santé numéro 2 ; Tel : +237 654 45 38 89 / 699 88 49 28 ; Email : doctadipanda@yahoo.fr**                                                                                 
