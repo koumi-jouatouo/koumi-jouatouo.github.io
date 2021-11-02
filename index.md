@@ -9,7 +9,7 @@ Je me nomme KOUMI JOUATOUO Emmanuel, née le 08 Août 1990 a Banka-Bafang de nat
 ______________________________________________________________
 * **Nom et prénom** : KOUMI JOUATOUO Emmanuel 
 * **Date et lieu de naissance** : 08 Août 1990 a Banka-Bafang 
-* **Situation matrimoniale** : Célibataire 
+* **Situation matrimoniale** : Marié 
 * **Nationalité** : Camerounaise 
 * **Téléphone** : (+237) 678 90 09 16 / 696 59 61 20 
 * **E-mail** : koumiemmanuel@yahoo.fr
@@ -24,10 +24,11 @@ ______________________________________________________________
 ______________________________________________________________
 * **2016-2018** : Master en Santé Publique option Santé Communautaire obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
 *  **2015-2016** : Licence Spéciale en Sciences Infirmières obtenu à l'UCAC (Université Catholique d’Afrique Centrale).
-*  **2015-2016** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
+*  **2012-2015** : Diplôme d’Etat d’Infirmier (IDE)  obtenu à la Fondation MONGA de Mbouda.
 
 ## Certificats et Attestations Recents
 ______________________________________________________________
+* **2021** : Attestation en Geste de Premiers Sécours obtenu au CAF/Minsanté/Cocan
 * **2018** : Attestation en assistance vitale cardiovasculaire et traumatique avancée obtenu à l'Hôpital Bethesda / CURY.
 * **18 au 20 Avril 2018** : Attestation de participation au 1er congrès de Médecine Communautaire organisé à Yaoundé à l’occasion des Journées Nationales de Promotion de la Santé (JNPS), sur le thème « le paludisme de l’enfant dans tous ses états » obtenu à l'Ecole des Sciences de la Santé de l’Université Catholique d’Afrique Centrale.
 * **Juin 2018** : Attestation de participation au sommet sur la santé ténue à Kribi obtenu à la CASEC, THE PATCHA FOUNDATION.
