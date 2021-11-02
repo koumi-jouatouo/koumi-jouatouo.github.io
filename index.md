@@ -64,51 +64,37 @@ Organisation : **hôpital Bethesda de Yaoundé**
 
 Poste occupé : **Infirmier**
 
-**Tâches et responsabilités**
+**D'octobre 2012 à Août 2015**
+*	Participant à plusieurs ateliers de formation sur l’algorithme de Prise en Charge du Paludisme dans le District de Santé de Mbouda ;
+*	Mobilisateur, Vaccinateur et Superviseur des campagnes de Vaccination dans le District de Santé de Mbouda ;
+*	Reporting et monitoring.
+             
+**D’Octobre 2015 à Mai 2017**
+*	Supervision de Routine sur le Paludisme dans le District de Djoungolo ;
+*	Superviseur des campagnes de Vaccination dans le District de Santé de Nkolndongo ;
+*	Formateur des Agents de Santé Communautaire (ASC) sur la prise en charge Communautaire du Paludisme ;
 
-Sous la supervision du Surveillant Général :
-
-*	Accueillir, installer et rassurer le patient ;
-*	Accompagnement à l’observance thérapeutique du traitement ARV auprès des personnes vivant avec le VIH/SIDA ;
-*	Offre de dépistage aux femmes enceintes, reçues en salle d’accouchement avec un statut sérologique négatif datant de plus de trois mois ou statut inconnu ;
-*	Offre de dépistage aux parents des bébés reçus en néonatologie avec statut sérologique non connu ;
-*	Counselling motivationnel pour l’observance au traitement ARV ;
-*	Visite à domicile chez les parents vivant avec le VIH dont les bébés sont hospitalisés dans notre service ;
-*	Offre de dépistage des PCR aux bébés de 6 semaines, nés de mère séropositive ;
-*	Donner des renseignements utiles aux clients et à leur entourage ;
-*	Informer le malade sur la procédure des examens, sur les risques per ou post examen ;
-*	Faire des soins infirmiers préventifs et curatifs ;
-*	Préparer et surveiller les malades bénéficiant des soins sous sa responsabilité ;
-*	Mettre en place les appareillages de surveillance ;
-*	Maintenir et vérifier l’état de fonctionnement des équipements de service ;
-*	Déterminer et expliquer les contre-indications aux différents traitements et examens ;
-*	Déterminer et expliquer la conduite à tenir sur les effets secondaires et probables du traitement ou des soins ;
-*	Assurer l’entretien du matériel, la propreté de la salle ;
-*	Mettre en œuvre les protocoles de différents soins ;
-*	Appliquer les mesures de prévention dans tous les soins et au sein de la structure hospitalière ;
-*	Prodiguer des soins d’hygiène et de confort aux malades ;
-*	Accueillir et encadrer les autres personnels de santé et les différents stagiaires dans les services ;
-*	Réaliser des pansements en respectant les règles d’asepsie ;
-*	Préparer et assurer le transport et la sécurité du patient lors des examens spéciaux ;
-*	Mettre en œuvre les moyens et méthodes en cas d’urgence ;
-*	Assurer la continuité des soins par les transmissions écrites et orales ;
-*	Enregistrer les données liées à l’activité du service ;
-*	Envisager la recherche en santé dans son domaine, à partir de ces activités journalières ;
-*	Faire l’IEC au malade ou à sa famille selon les pathologies et / ou les traitements/examens à subir par le patient ;
-*	Assurer les soins mortuaires immédiats ;
-*	Analyser la qualité des soins et améliorer sa pratique professionnelle ;
-*	Participer au travail administratif du service ;
-*	Participer à la réalisation, la mise en œuvre et à la mise à jour des protocoles de service ;
-*	Participer aux séances d’enseignement et de perfectionnement.
-
-**De MAI 2016 à Décembre 2018**
+**De MAI 2017 à Décembre 2019**
+*	Diagnostics Communautaires des Districts de Santé de la Cité-Verte, de Ekola et de Mbankomo ;
+*	Formateur des ASC sur la collecte des données à base des plates formes numériques du District de Santé de Mbankomo ;
+*	Superviseur des ASC de Mbankomo sur la collecte des données à base des plates formes numériques ;
+*	Membre de l’équipe médicale de la journée mondiale de l’alimentation ;
 *	Appui à l’offre de dépistage VIH auprès des travailleurs de sexe de Yaoundé en stratégie avancée dans les points chauds ;
 *	Appui dans l’observance et la rétention ;
 *	Gestionnaire des cas VIH ;
-
-**D’Octobre 2016 à Janvier 2018**
+*	Participant à plusieurs ateliers de formation des prestataires de soins à la prise en charge du paludisme 
+*	Supervision de Routine du Paludisme dans la Région du Centre
 *	Stagiaire au Ministère de la santé, Direction de la santé familiale, Sous-direction de la PTME ;
 *	Participation à de nombreux ateliers (TWG) organisés par le Minsanté et les ONG partenaires sur le dépistage, l’enrôlement, le linkage, les points focaux de prise en charge du VIH, la prise en charge pédiatrique du VIH, l’extension des UPEC, les différents protocoles de TARV, la gestion des perdus de vue, le tracking et c.
+
+**De Mars 2020 à Novembre 2020** 
+*	Participant à plusieurs ateliers de formation sur la riposte du Covid-19
+*	Personnel de prise en charge dans les hôtels réquisitionnés pour le confinement ;
+*	Appui au suivi des cas contacts  du Covid-19 ;
+
+**Décembre 2020**
+*	Atelier de formation en gestes de premiers sécours et régulation médicale à mbalmayo
+
 
 ## CONNAISSANCES LINGUISTIQUES 
 ______________________________________________________________
@@ -136,6 +122,7 @@ Bénévole de l’ONG PATCHA Foundation…
 ## REFERENCES
 ______________________________________________________________
 *	**OLOUME BEYEME Valentine, adolescent and HIV/AIDS Specialist à UNICEF ; Tel : +237 699 91 31 22 / 673 16 87 61 ; Email : vobeyeme@unicef.org**
-*	**ANGUMUA Carrine, HIV PREVENTION SPECIALIST, CARE International au Cameroun. TEL : +237 675 098 960. Email : carynangu@yahoo.com**
-*	**Dr DIPANDA Théodore, médecin généraliste, Inspecteur de Santé numéro 2 ; Tel : +237 654 45 38 89 / 699 88 49 28 ; Email : doctadipanda@yahoo.fr**                                                                                 
+*	**Dr DIPANDA Théodore, médecin généraliste, Inspecteur de Santé numéro 2 ; Tel : +237 654 45 38 89 / 699 88 49 28 ; Email : doctadipanda@yahoo.fr**    
+*	**Dr METOMB Franck Steve, CERPLE du Centre ; Tel : 00237 6970020455 ; 00237 670324545**                                                                             
+                                                                             
 
